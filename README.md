@@ -16,9 +16,15 @@ Before we start let me introduce myself, I'm Allium/Pumpkin/Mist! I go by they/h
 DNI: Dottore glazers/apologists (a fan of his villain character? i don't mind then, this is meant for people who see him as "an innocent & misunderstood babygirl who had never done a single bad thing"), proshippers, TCOAAL fans; Jade(HSR) DIEHARD fans, if you hate on other people's favourite [unproblematic] ships/characters just for the sake of it; if your mindset is "I'm always in the right, everyone else is wrong"; if you're unironically say "Aether/Lumine is better than Lumine/Aether" everyone has different opinions and we could chose between them for a reason; any abuser x abused shippers, if you romanticize stalkers, manipulators or any other toxic behaviour; 
  ! ! DISCLAIMER ! ! : If you do ship somewhat problematic/toxic ships, you may interact if you don't make the said ship your whole personality and you do not force it upon others. Or defend abusive/toxic behaviours in real life. I can seperate fiction from reality!!     ᶻ 𝗓 𐰁 .ᐟ
 
+✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧°❀⋆.ೃ࿔*:･
+
 Please don't interact with me if you ship: KAEYA X DILUC, PVC x SMC, Dottore x Wanderer/Collei/anyone who was his test subject and/or was hurt/traumatised/killed by him, ArleFuri/NeuviFuri, Dan Heng x Blade, Aglaea x Cipher, any kid character x any adult character (from all media), Also stay away if you tend to fetishize BL/GL or anything that isn't strictly sexual. Thank you.    ᶻ 𝗓 𐰁 .ᐟ
 
+✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧°❀⋆.ೃ࿔*:･
+
 Ships I like: [GI] - Zhongli x Childe, Varka x Flins, Kaeya x Albedo, Nefer x Lauma, Neuvillette x Wriothesley, Valeriy x Mitya, Alhaitham x Kaveh, Cyno x Tighnari, Chasca x Xilonen, Wanderer x Kazuha, Thoma x Ayato, Lohen x Illuga, Kinich x Lyney, Ga'ming x Freminet, Ifa x Ororon, Fischl x Noelle; [HSR] - Sunday x Anaxagoras, Jing Yuan x Blade, Phainon x Mydei, Aventurine x Dr. Ratio, Argenti x Boothill,  Gepard x Sampo, Jiaoqiu x Moze, Ashveil x Pearl; [ZZZ] - Hugo Vlad x Lycaon, Wise x Lighter, Harumasa x Seth, Astra Yao x Evelyn, Alice x Yuzuha, Claret x Roxy; ᶻ 𝗓 𐰁 .ᐟ
+
+✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧°❀⋆.ೃ࿔*:･
 
 Ships I dislike: [GI] - Varka x Nicole, Flins x Lauma, Kinich x Mualani, Childe x Wanderer, Neuvillette x Zhongli, Diluc x Jean, Citlali x Traveler, Xiao x Venti; [HSR] - Aglaea x Anaxagoras, Yunli x Yanqing, Sunday x Gallagher, Feixiao x Jiaoqiu, Robin x Boothill, Kafka x Blade; [ZZZ] - Seth x Jane Doe, Vivian x Hugo Vlad, Cissia x Billy; ------> I don't mind if you ship those I'm just giving you a headsup that I don't ship these :) not hating on them!!    ᶻ 𝗓 𐰁 .ᐟ
 
