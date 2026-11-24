@@ -26,7 +26,7 @@ Ships I like: [GI] - Zhongli x Childe, Varka x Flins, Kaeya x Albedo, Nefer x La
 
 ✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧°❀⋆.ೃ࿔*:･
 
-Ships I dislike: [GI] - Varka x Nicole, Flins x Lauma, Kinich x Mualani, Childe x Wanderer, Neuvillette x Zhongli, Diluc x Jean, Citlali x Traveler, Xiao x Venti; [HSR] - Aglaea x Anaxagoras, Yunli x Yanqing, Sunday x Gallagher, Feixiao x Jiaoqiu, Robin x Boothill, Kafka x Blade; [ZZZ] - Seth x Jane Doe, Vivian x Hugo Vlad, Cissia x Billy; ------> I don't mind if you ship those I'm just giving you a headsup that I don't ship these :) not hating on them!!    ᶻ 𝗓 𐰁 .ᐟ
+Ships I dislike: [GI] - Varka x Nicole, Flins x Lauma, Kinich x Mualani, Childe x Wanderer, Neuvillette x Zhongli, Diluc x Jean, Citlali x Traveler, Xiao x Venti; [HSR] - Aglaea x Anaxagoras, Yunli x Yanqing, Sunday x Gallagher, Sunday x Welt, Feixiao x Jiaoqiu, Robin x Boothill, Kafka x Blade; [ZZZ] - Seth x Jane Doe, Vivian x Hugo Vlad, Cissia x Billy; ------> I don't mind if you ship those I'm just giving you a headsup that I don't ship these :) not hating on them!!    ᶻ 𝗓 𐰁 .ᐟ
 
 𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼𓇼 
 
