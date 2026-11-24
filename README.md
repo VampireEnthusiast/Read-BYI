@@ -7,6 +7,10 @@ IF I HAVE (in my pony name):
 
 • C+H (cuddle & hide) - I don't mind cuddling up or if you hide behind me, but only if I have it said specifically in my name :)
 
+• iwc/iwec (interact with caution/interact with extreme caution) - I probably wouldn't engage in any conversations easily, usually have this if I'm having a really bad day or if I'm not feeling well
+
+• quiet - might not respond unless I'm the one interacting (same goes for nonverb - non-verbal - which I am very rarely but still)
+
 *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩₊˚༺☆༻*ੈ✩‧₊˚ִ  ࣪ ˖ ࣪ ᨰꫀᥣᥴ᥆ꩇꫀ !  ᰔ ִ ׄ*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚✩‧₊˚༺☆
 
 Before we start let me introduce myself, I'm Allium/Pumpkin/Mist! I go by they/he, I'm 22 yo, so I would really appreciate if any minors interacting with me tell me they're under 18 immediately so we both won't have any issues nor for both of us to feel uncomfortable for any reason. I usually sit on safe#2 but recently I'm fairly often on 18+!! to see games which I'm playing you can add me on discord: _alliumflower; I'm a big big fan of Kaeya/Zhongli/Baizhu/Nefer from GI, Jing Yuan/Sunday/Anaxagoras/Sampo from HSR, Hugo Vlad & Billy from ZZZ, Medicine Pocket/Forget Me Not/Enigma from R1999 and I absolutely adore Brant from WuWa<3 I'm polish!! And I speak both polish and english, trying (and miserably failing) to learn german and japanese. I often might be afk so feel free to whisper!!!    ᶻ 𝗓 𐰁 .ᐟ
