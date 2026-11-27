@@ -13,6 +13,10 @@ IF I HAVE (in my pony name):
 
 *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩₊˚༺☆༻*ੈ✩‧₊˚ִ  ࣪ ˖ ࣪ ᨰꫀᥣᥴ᥆ꩇꫀ !  ᰔ ִ ׄ*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚✩‧₊˚༺☆
 
+If it's not too much to ask for - I am a very, heavily overthinking person. If (and only if I don't want to force anyone to do anything they're not comfortable with doing) you've hidden me or are going to hide me perhaps write on my strawpage or atabook (both anonymous!!) why so I know what did I do so I can avoid making anyone uncomfortable or hurt anyone in the future. I am not a hateful person and I just want to enjoy a silly pony social game. I really don't mean to be rude, nor disrespectful.
+
+*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩₊˚༺☆༻*ੈ✩‧₊˚ִ  ࣪ ˖ ࣪ ᨰꫀᥣᥴ᥆ꩇꫀ !  ᰔ ִ ׄ*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚✩‧₊˚༺☆
+
 Before we start let me introduce myself, I'm Allium/Pumpkin/Mist! I go by they/he, I'm 22 yo, so I would really appreciate if any minors interacting with me tell me they're under 18 immediately so we both won't have any issues nor for both of us to feel uncomfortable for any reason. I usually sit on safe#2 but recently I'm fairly often on 18+!! to see games which I'm playing you can add me on discord: _alliumflower; I'm a big big fan of Kaeya/Zhongli/Baizhu/Nefer from GI, Jing Yuan/Sunday/Anaxagoras/Sampo from HSR, Hugo Vlad & Billy from ZZZ, Medicine Pocket/Forget Me Not/Enigma from R1999 and I absolutely adore Brant from WuWa<3 I'm polish!! And I speak both polish and english, trying (and miserably failing) to learn german and japanese. I often might be afk so feel free to whisper!!!    ᶻ 𝗓 𐰁 .ᐟ
 
 ✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧°❀⋆.ೃ࿔*:･
